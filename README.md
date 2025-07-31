@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Subhajit Dhali
-**A passionate Web Developer || MERN Developer || from India**
+**A passionate Web Developer || MERN Developer **
 
 Email Me 👉 ✉️ **subhajitdhali0@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
